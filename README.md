@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JustToasty
+- 👋 Hi, I’m @Toastyisburning
 - 👀 I LOVE persona 3 reload rn
 - 🌱 I’m learning html currently (first language ive ever learned)
 - 📫 You can reach me on discord, or literally any social media: @toastyisburning
